@@ -21,7 +21,7 @@
 <br/>
 
 
-![](https://github.com/dystortia/dystortia/blob/6a8bc3f6f361a7f63e1a14fbe09f18fed1ad85ff/Untitled1559_20260503150530.png)
+![](https://github.com/dystortia/dystortia/blob/c70992010774106c490fdad23f1353d448fc4dba/Untitled1559_20260503152904.png)
 
 
 <br/>
