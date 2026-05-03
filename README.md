@@ -26,6 +26,18 @@
 
 <br/>
 
+<div align="center">
 
-# ABOUT ME
 **Hypersexual, Omnisexual, Fictosexual, ADHD, BPD**
+
+</div>
+
+<br/>
+
+<div align="center">
+
+**Forsaken, Lifesteal SMP, Unstable Universe / Unstable SMP, BATIM / Bendy and the Ink Machine, Phighting, KNY, TFC / The Freak Circus, Transformers, Cookie Run Kingdom / CRK, FNaF, GnB / Guts and Blackpowder, AVA / Animators VS Animation, Among Us, Godzilla, Blocktales, Call of Duty, Mobile Legends, LMK (Lego Monkie Kid, Invincible, PPG / Powerpuff Girls, MLP, Marvel, DC, Kung Fu Panda, and more fandoms.**
+
+</div>
+
+<br/>
