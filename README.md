@@ -1,20 +1,31 @@
-<div align="center"> DOKI DOKI !! </div>
+<div align="center"> ◟ ͜𓉯　　︶ ͝　　　⚔️　　　།∔　　　𓎡 </div>
+
 
 <br/>
 
 
+<div align="center">
+  
+  ꜛ⠀　　｡　　⠀**basil**　rogue "
+  
+  </div>
 
-<div align="center"> she  ݁  basil  ݁  any ױ </div>
-<div align="center"> ꒰ there will come a soldier who carries a mighty sword . ꒱ </div>
+  
+<div align="center">
+  
+  ꒰ " There will come a _soldier_ who carries a mighty **sword** . " ꒱
+  
+  </div>
+
 
 <br/>
 
-<div align="center">
-<img src="https://files.catbox.moe/um3nqy.png" width="400" height="40" />
-</div>
+
+![](https://github.com/dystortia/dystortia/blob/6a8bc3f6f361a7f63e1a14fbe09f18fed1ad85ff/Untitled1559_20260503150530.png)
 
 
+<br/>
 
 
-<div align="center">
-<img src="https://github.com/dystortia/dystortia/blob/fe9273c874f3b76b62b15d26caaa76141e67742d/IMG_0638.jpeg" width=400 height="400" /> </div>
+# ABOUT ME
+**Hypersexual, Omnisexual, Fictosexual, ADHD, BPD**
