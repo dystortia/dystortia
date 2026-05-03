@@ -1,4 +1,4 @@
 <div align="center"> she  ݁  basil  ݁  any ױ </div>
 <div align="center"> ꒰ la seine la seine la seine ! . ꒱ </div>
 
-![image alt](https://github.com/eternally-yearning/eternally-yearning/blob/96c2de37554305f17367419d52f7bc56710e4ce7/Untitled1529_20260329155152.png)
+![image alt](https://github.com/dystortia/dystortia/blob/fe9273c874f3b76b62b15d26caaa76141e67742d/IMG_0638.jpeg)
