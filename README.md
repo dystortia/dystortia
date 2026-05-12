@@ -20,8 +20,7 @@
   
   </div>
 
-
-<br/>
+![](https://github.com/dystortia/dystortia/blob/1dc1300f62d1d705bc50687da794b1085ad3f37b/Untitled1384_20260512185655.png)
 
 
 <div align="center">
