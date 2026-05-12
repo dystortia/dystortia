@@ -1,4 +1,7 @@
-<div align="center"> ◟ ͜𓉯　　︶ ͝　　　⚔️　　　།∔　　　𓎡 </div>
+
+![](https://github.com/dystortia/dystortia/blob/e1e98157e8b636dd3da2af9e5604e96fb67ccfc7/Untitled1384_20260512185136.png)
+
+<div align="center">︶⊹︶︶୨୧︶︶⊹︶</div>
 
 
 <br/>
@@ -6,25 +9,20 @@
 
 <div align="center">
   
-  ꜛ⠀　　｡　　⠀**basil**　rogue "
+𐔌   .  ⋮ **Raven / Beowolf**  .ᐟ  ֹ   ₊ ꒱
   
   </div>
 
   
 <div align="center">
   
-  ꒰ " There will come a _soldier_ who carries a mighty **sword** . " ꒱
+  ꒰ " If we're reborn, and we're reborn as humans, can I be your bride? . " ꒱
   
   </div>
 
 
 <br/>
 
-
-![](https://github.com/dystortia/dystortia/blob/c70992010774106c490fdad23f1353d448fc4dba/Untitled1559_20260503152904.png)
-
-
-<br/>
 
 <div align="center">
 
