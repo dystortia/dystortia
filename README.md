@@ -1,5 +1,5 @@
 
-![](https://github.com/dystortia/dystortia/blob/e1e98157e8b636dd3da2af9e5604e96fb67ccfc7/Untitled1384_20260512185136.png)
+![](https://github.com/dystortia/dystortia/blob/414048b6b991ef588f5ea1a8ca18ff323897c99a/IMG_0898.jpeg)
 
 <div align="center">︶⊹︶︶୨୧︶︶⊹︶</div>
 
