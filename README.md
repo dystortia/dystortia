@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://github.com/dystortia/dystortia/blob/40e8da02187ea12389c29df7729fc070e614145e/Untitled1605_20260710174152.png)
+<img src="https://github.com/dystortia/dystortia/blob/4b6e6236a081dfa9e1c5a50c09d8388364b8bfcf/Untitled1386_20260710191056.png" width="1500" height="1500">
 
 </div>
 
