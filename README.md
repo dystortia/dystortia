@@ -20,7 +20,7 @@ ${\textsf{\color{#FF0000}   ꒰ " By the Blood of Sanguinius . " ꒱ }}$
   
   </div>
 
-![](https://github.com/dystortia/dystortia/blob/1dc1300f62d1d705bc50687da794b1085ad3f37b/Untitled1384_20260512185655.png)
+![](https://github.com/dystortia/dystortia/blob/18da938967e9ea4a52dd355b261f5ccdbb3c74fc/Untitled1604_20260710173943.png)
 
 
 <div align="center">
