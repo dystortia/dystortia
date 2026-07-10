@@ -16,7 +16,7 @@
   
 <div align="center">
   
-  ꒰ " If we're reborn, and we're reborn as humans, can I be your bride? . " ꒱
+  ꒰ " By the Blood of Sanguinius . " ꒱
   
   </div>
 
