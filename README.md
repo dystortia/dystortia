@@ -15,8 +15,8 @@
 
   
 <div align="center">
-  
-  ꒰ " By the Blood of Sanguinius . " ꒱
+
+${\textsf{\color{#FF0000}   ꒰ " By the Blood of Sanguinius . " ꒱ }}$
   
   </div>
 
