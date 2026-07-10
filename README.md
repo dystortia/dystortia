@@ -1,3 +1,5 @@
+<div align="center"> github WIP </div>
+
 <div align="center">
 
 <img src="https://github.com/dystortia/dystortia/blob/4b6e6236a081dfa9e1c5a50c09d8388364b8bfcf/Untitled1386_20260710191056.png" width="1500" height="1500">
@@ -29,7 +31,7 @@ ${\textsf{\color{#B0494E}" By the Blood of Sanguinius . "}}$
 
 <div align="center">
 <details>
-  <summary>"ᴀʙᴏᴜᴛ ᴍᴇ"</summary>
+  <summary> ${\textsf{\color{#B0494E}"ᴀʙᴏᴜᴛ ᴍᴇ"}}$</summary>
 <div align="center">
 
 **Hypersexual, Omnisexual, Fictosexual, ADHD, BPD**
