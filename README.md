@@ -8,7 +8,7 @@
 
 <div align="center">
   
-<img src="https://github.com/dystortia/dystortia/blob/06160dd26dfa2f3322027e3e6c8c60161c069e5d/Untitled1606_20260710183053.png" width="500" height="500">
+<img src="https://github.com/dystortia/dystortia/blob/9cc1df857d5b961c6c106bca3f5e484ea7935806/Untitled1606_20260710185303.png" width="500" height="500">
 
 </div>
 
@@ -16,7 +16,7 @@
   
 <div align="center">
 
-${\textsf{\color{#FF0000}" By the Blood of Sanguinius . "}}$
+${\textsf{\color{#B0494E}" By the Blood of Sanguinius . "}}$
   
   </div>
 
