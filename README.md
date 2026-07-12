@@ -49,3 +49,9 @@ ${\textsf{\color{#B0494E}" By the Blood of Sanguinius . "}}$
 </div>
 
 <br/>
+
+<p float="left">
+  <img src="IMAGE_URL_1" width="400" />
+  <img src="IMAGE_URL_2" width="400" />
+</p>
+
