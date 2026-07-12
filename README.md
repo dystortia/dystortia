@@ -50,8 +50,11 @@ ${\textsf{\color{#B0494E}" By the Blood of Sanguinius . "}}$
 
 <br/>
 
+<div align="center">
+
 <p float="left">
   <img src="IMAGE_URL_1" width="400" />
-  <img src="IMAGE_URL_2" width="400" />
+  <img src="https://github.com/dystortia/dystortia/blob/351d2dc934730235b9dddd38ff10380bbee358b3/Untitled1610_20260712213852.png" width="395" />
 </p>
 
+</div>
