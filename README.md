@@ -43,3 +43,5 @@ ${\textsf{\color{#605565}" By the Blood of Sanguinius . "}}$
 </p>
 
 </div>
+
+![](https://github.com/dystortia/dystortia/blob/6aef0cddd6d9e9cdba5c1b90c461fc2400a463c4/Untitled1617_20260719150746.png)
