@@ -2,31 +2,16 @@
 
 <div align="center">
 
-<img src="https://github.com/dystortia/dystortia/blob/4b6e6236a081dfa9e1c5a50c09d8388364b8bfcf/Untitled1386_20260710191056.png" width="1500" height="1500">
+![](https://github.com/dystortia/dystortia/blob/aab9ffc8c456d06eea1beee5ec9ce715dbe9f824/Untitled1617_20260719144943.png)
 
 </div>
-
-<br/>
-
-<div align="center">
-  
-<img src="https://github.com/dystortia/dystortia/blob/9cc1df857d5b961c6c106bca3f5e484ea7935806/Untitled1606_20260710185303.png" width="500" height="500">
-
-</div>
-
 
   
 <div align="center">
 
-${\textsf{\color{#B0494E}" By the Blood of Sanguinius . "}}$
+${\textsf{\color{#605565}" By the Blood of Sanguinius . "}}$
   
   </div>
-
-  <div align="center"
-    
-![](https://github.com/dystortia/dystortia/blob/18da938967e9ea4a52dd355b261f5ccdbb3c74fc/Untitled1604_20260710173943.png)
-
-</div>
 
 
 <div align="center">
