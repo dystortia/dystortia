@@ -29,6 +29,8 @@ ${\textsf{\color{#605565}" By the Blood of Sanguinius . "}}$
 
 **Forsaken, Lifesteal SMP, Unstable Universe / Unstable SMP, BATIM / Bendy and the Ink Machine, Phighting, KNY, TFC / The Freak Circus, Transformers, Cookie Run Kingdom / CRK, FNaF, GnB / Guts and Blackpowder, AVA / Animators VS Animation, Among Us, Godzilla, Blocktales, Call of Duty, Mobile Legends, LMK (Lego Monkie Kid, Invincible, PPG / Powerpuff Girls, MLP, Marvel, DC, Kung Fu Panda, and more fandoms.**
 
+a boundary to add, please don't mention any sensitive topics about SA as i am very vulnerable to those topics and that i am a victim. I haven't added this information yet because I've been uncomfortable, but now i want to add a few awareness. Thank you.
+
 </div>
 </details>
 </div>
