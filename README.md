@@ -16,7 +16,7 @@ ${\textsf{\color{#605565}" By the Blood of Sanguinius . "}}$
 
 <div align="center">
 <details>
-  <summary> ${\textsf{\color{#B0494E}"ᴀʙᴏᴜᴛ ᴍᴇ"}}$</summary>
+  <summary> ${\textsf{\color{#605565}"ᴀʙᴏᴜᴛ ᴍᴇ"}}$</summary>
 <div align="center">
 
 **Hypersexual, Omnisexual, Fictosexual, ADHD, BPD**
