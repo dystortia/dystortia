@@ -9,7 +9,7 @@
   
 <div align="center">
 
-${\textsf{\color{#605565}" By the Blood of Sanguinius . "}}$
+${\textsf{\color{#605565}" BY THE BLOOD OF SANGUINIUS . "}}$
   
   </div>
 
