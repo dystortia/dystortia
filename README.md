@@ -40,7 +40,7 @@ a boundary to add, please don't mention any sensitive topics like SA or any othe
 <div align="center">
 
 <p float="left">
-  <img src="IMAGE_URL_1" width="400" />
+  <img src="https://github.com/dystortia/dystortia/blob/316b72aebeb9dc09611569329ee7ef06b655a401/Untitled1628_20260807171749.png" width="455" />
   <img src="https://github.com/dystortia/dystortia/blob/b74e31f4867b4715c81e63770774c35890968772/Untitled1619_20260719152058.png" width="395" />
 </p>
 
