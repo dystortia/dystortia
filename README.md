@@ -1,5 +1,3 @@
-<div align="center"> github WIP </div>
-
 <div align="center">
 
 ![](https://github.com/dystortia/dystortia/blob/aab9ffc8c456d06eea1beee5ec9ce715dbe9f824/Untitled1617_20260719144943.png)
